@@ -1,9 +1,9 @@
 <div align="center">
-  <img height="200" src="https://i.pinimg.com/736x/3a/16/99/3a1699a7f060a3052fcabb8e6667f631.jpg"  />
+  <img height="250" src="https://i.pinimg.com/736x/e2/5c/2c/e25c2caba0c81628e928359c3a749c81.jpg"  />
 </div>
 
 ###
 
-<p align="left">alt acc for my linked acc, i play ponytown a alot, and dw if you can tell</p>
+<p align="left">𓎢𓎠𓎡⠀ ︵ིྀ⠀⠀ ㅤׅ   🌻 ◌⠀𓈒⠀°⠀;; " I literally love Noob sm hes so adorable in every way possible, but hi, I'm Noob / Spade, i most play pt, dandys world and/or CAC (catalog avatar creator) on rblx, i don't play forsaken as much as I used to. (this will probably be edited a lot, soo) Bye for now! " ::</p>
 
 ###
